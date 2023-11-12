@@ -1,4 +1,4 @@
-# Hello_there
+# Hi there🧚🏻✨
 
 As a data science student, I am constantly immersed in the world of numbers, algorithms, and insights. Beyond my academic pursuits, I find joy in the simple and vibrant aspects of life. Sports have a special place in my heart, providing an exhilarating escape from the analytical world of data. Music festivals are my sanctuary, where I lose myself in the electric energy of the crowd, surrounded by the rhythms that connect us all.
 
